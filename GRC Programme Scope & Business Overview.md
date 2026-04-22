@@ -1,12 +1,9 @@
 **GRC Programme Scope & Business Overview** 
 
-\
-
 
 
 ## **Company Profile:** Tojo Clan Ltd.
 
-\
 
 
 **Industry**: High-end physical security, asset protection and Dispute Resolution
